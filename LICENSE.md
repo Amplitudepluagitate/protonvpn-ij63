@@ -1,4 +1,4 @@
-# 
+# smart Kaspersky Total Security para PC scripts é o melhor Kaspersky Total Security para PC scripts com varreduras agendadas e anti-adware. Seguro, confiável e otimizado para
 
 
 
